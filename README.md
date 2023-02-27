@@ -1,2 +1,0 @@
-# blopasp.github.io
-Portifólio
